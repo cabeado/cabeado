@@ -15,8 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/37f9ccbb-20b5-4604-b23b-646ea61e66ad)
-![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/38b41aa9-9549-4c26-bca5-79459533a12b)
-![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/89c6a173-3e7c-41ee-a51d-7c80b80dbb23)
 ![sueñitosgifs-traumatized-mr-incredible](https://github.com/cabeado/cabeado/assets/142426263/616c99b4-97f4-420a-aae6-36da9b965d6b)
 
 
