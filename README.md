@@ -1,4 +1,4 @@
-### Hi there 👋
+### saba demais 👋
 
 <!--
 **cabeado/cabeado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,6 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+-->
 ![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/37f9ccbb-20b5-4604-b23b-646ea61e66ad)
 ![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/38b41aa9-9549-4c26-bca5-79459533a12b)
 ![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/89c6a173-3e7c-41ee-a51d-7c80b80dbb23)
