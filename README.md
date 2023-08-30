@@ -16,8 +16,9 @@ Here are some ideas to get you started:
 -->
 ![thumbs-up-double-thumbs-up](https://github.com/cabeado/cabeado/assets/142426263/37f9ccbb-20b5-4604-b23b-646ea61e66ad)![the-rock-rock](https://github.com/cabeado/cabeado/assets/142426263/a9308f30-0e02-4fc3-9578-f9979567bd09)
 ![sueñitosgifs-traumatized-mr-incredible](https://github.com/cabeado/cabeado/assets/142426263/616c99b4-97f4-420a-aae6-36da9b965d6b)![rodrigo-faro](https://github.com/cabeado/cabeado/assets/142426263/fef740c5-94a5-4979-b039-511ec79845ea)
-![michael-jackson](https://github.com/cabeado/cabeado/assets/142426263/aab02965-df64-42f8-bb01-3312e6a422dc)
+
 ![19dollar-fortnite-card-among-us](https://github.com/cabeado/cabeado/assets/142426263/19da32b7-0bfc-4759-a611-e073714dcb3c)
+![michael-jackson](https://github.com/cabeado/cabeado/assets/142426263/9421e03a-c69e-4ef5-81bc-818799f314a6)
 
 
 
